@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **C, CPP, PHP, Python, JavaScript And Tailwind**
 
-- 📫 How to reach me **jaymange263@gmail.com** or **7016 515 225**
+- 📫 How to reach me **jaymange263@gmail.com** or **7016515225**
 
 - ⚡ Fun fact **I thrive in a positive and collaborative environment where creativity and growth are prioritized over pressure.**
 
